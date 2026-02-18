@@ -4,7 +4,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=16&duration=4444&pause=1000&color=66c78d&width=435&lines=soon+as+i+get+my+nut+off;break+up+thru+a+txt!+<3)](https://git.io/typing-svg)
 
-[strawpage](https://guitarshiip.straw.page/)
+[strawpage](https://guitarshiip.straw.page/) [atabook](https://guitarsheep.atabook.org/)
+
 
 i am ${{\color{#387e54}{\textsf{ profic }}}}$ and ${{\color{#387e54}{\textsf{ proendo }}}}$, if you're confused what either of those means- whisper and ask me. :) if you're upset by that, jobs are hiring! ;)
 <p align="center">
