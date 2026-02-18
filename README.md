@@ -1,3 +1,7 @@
+<p align="center">
+ <img src="https://github.com/songofpastromance/heated/blob/main/81a1e4e1db3a666ccf3fe8a7ee3a165c.gif" width="400"/>
+</p>
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=16&duration=4444&pause=1000&color=66c78d&width=435&lines=soon+as+i+get+my+nut+off;break+up+thru+a+txt!+<3)](https://git.io/typing-svg)
 
 [strawpage](https://guitarshiip.straw.page/)
@@ -9,6 +13,4 @@ i am ${{\color{#387e54}{\textsf{ profic }}}}$ and ${{\color{#387e54}{\textsf{ pr
   </a>
 </p>
 
-<p align="center">
-<img src="https://files.catbox.moe/yyucia.jpg" width="400" align="center" class="fr-fir fr-dii" height="400"></div>
-</p>
+
